@@ -1,0 +1,2 @@
+# Peores-decisiones
+malas decisiones
